@@ -66,4 +66,3 @@
 
 *   📧 邮箱: 1678310645@qq.com
 *   🔗 个人主页/作品集: https://space.bilibili.com/319447466/upload/video
-*   小工作室网站：https://asdfri.cn/ （在大学和志同道合的人组的开发游戏的工作室）
